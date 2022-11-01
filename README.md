@@ -5,7 +5,7 @@
 
 [最新地址一 www.18mo8.info  点击此处](https://www.18mo8.info) 
 
-[新地址二 www.18mo9.info 点击此处](https://www.18mo9.info) 
+[最新地址二 www.18mo9.info 点击此处](https://www.18mo9.info) 
 
 看片提醒您请注意，永久地址一定要加https
 
